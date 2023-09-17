@@ -1,1 +1,1 @@
-Me he propuesto aprender Next13.# learningnext13
+Me he propuesto aprender Next13. learningnext13
